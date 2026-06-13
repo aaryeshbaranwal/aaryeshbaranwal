@@ -1,4 +1,4 @@
-# Hi there 👋, I'm Chuhu
+# Hi there 👋, I'm Aaryesh 
 
 ### 🚀 Class 10 Student | Aspiring Developer | Tech Enthusiast
 
